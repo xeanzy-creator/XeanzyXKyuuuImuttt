@@ -1,2 +1,2 @@
-# XeanzyXKyuuuImuttt
+# XeanzyXKyuu
 Baileys Bot WhatsApp 
